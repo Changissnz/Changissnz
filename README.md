@@ -23,4 +23,4 @@ Boom disserviced me. But as I have already stated, I know good things will come 
 
 I expect the high-tech market to crash after all the relevant A.I. corporations go through their IPO. That's only fair. 
 And I also expect the developments in A.I. to be alarmingly impactful to many institutional bodies around the world, 
-including the United States. Chiefly, that would be healthcare, militaries, and civil governance. 
+including ones in the United States. Chiefly, that would be healthcare, militaries, and civil governance. 
