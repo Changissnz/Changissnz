@@ -18,4 +18,7 @@ are put in place. The human factor has been prejudice, deceit, thievery, and so 
 gambling and luck of birth. Casuistry. So unlike some people that see the A.I. renovation as a harbinger of nothing more than 
 death and destruction, I know good things will come out of it. 
 
-And I expect the high-tech market to crash after all the relevant A.I. corporations go through their IPO. That's only fair. 
+I will always feel that my experience in higher education was insufficient and that the economy since Covid-19 and the A.I. 
+Boom disserviced me. But as I have already stated, I know good things will come out of it. 
+
+I expect the high-tech market to crash after all the relevant A.I. corporations go through their IPO. That's only fair. 
