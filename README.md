@@ -1,6 +1,7 @@
 ## My legal name is Richard Pham. But it's not what it seems. 
 
-😆: 😆:
+I might be with the Russians...
+😆 😆
 
 I hate the software industry, out of my own interests. The university/college classrooms filled up nicely with 
 STEM students. Then something happened to quite some number of people. Shorted out of industry jobs. Government 
