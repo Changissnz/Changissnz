@@ -15,7 +15,7 @@ for a rundown of what I sort of think on how the money flows.
 I think the renovation from LLMs will do wonders for the services sector. It will bring better life to higher education 
 and make administrative work more efficient and...less prone to corruption if and only if the appropriate "guardrails" 
 are put in place. The human factor has been prejudice, deceit, thievery, and so on where finance is treated more like 
-gambling and luck of birth. So unlike some people that see the A.I. renovation as a harbinger of nothing more than 
+gambling and luck of birth. Casuistry. So unlike some people that see the A.I. renovation as a harbinger of nothing more than 
 death and destruction, I know good things will come out of it. 
 
-And I expect the high-tech economy to crash after all the A.I. corporations go through their IPO. That's only fair. 
+And I expect the high-tech market to crash after all the A.I. corporations go through their IPO. That's only fair. 
