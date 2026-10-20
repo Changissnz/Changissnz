@@ -1,4 +1,5 @@
 ## My legal name is Richard Pham. But it's not what it seems. 
+### 10/19/2026 
 
 I might be with the Russians...  
 😆 😆
@@ -24,3 +25,6 @@ Boom disserviced me. But as I have already stated, I know good things will come 
 I expect the high-tech market to crash after all the relevant A.I. corporations go through their IPO. That's only fair. 
 And I also expect the developments in A.I. to be alarmingly impactful to many institutional bodies around the world, 
 including ones in the United States. Chiefly, that would be healthcare, militaries, and civil governance. 
+
+I prefer watching Latin Americans play soccer and Asians from Asia write software than put any effort into anything. 
+Alas...could I be nothing more than a bottom-feeding Americanos unless I go Russian?! 
