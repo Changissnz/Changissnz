@@ -27,8 +27,8 @@ And I also expect the developments in A.I. to be alarmingly impactful to many in
 including ones in the United States. Chiefly, that would be healthcare, militaries, and civil governance. 
 
 I prefer watching Latin Americans play soccer, blacks play basketball & football, and Asians from Asia write software 
-than put any effort into doing anything on my own. And I hate soccer and software; I already stated I hate the software 
-industry and that also extends to the software products as well. The endeavor of manually writing software nowadays is 
-beneath the dignity of some people, me included. 
+than put any effort into doing anything on my own. And I hate soccer,basketball&football, and software; I already stated 
+I hate the software industry and that also extends to the software products as well. The endeavor of manually writing 
+software nowadays is beneath the dignity of some people, me included. 
 
 Alas...could I be nothing more than a bottom-feeding Americanos unless I go Russian?! 
