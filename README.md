@@ -3,7 +3,7 @@
 
 They have been dropping for almost two straight years now. 
 
-I put up another Github profile introduction of myself a few years ago. See this 
+I put up another Github profile introduction of myself a few weeks ago. See this 
 [link](https://github.com/Changissnz/previous_github_profile_intro__10-19-2026) for 
 more on that. I figured that introduction was too negative nancy for all these 
 Tom Clancy's and Jessica McPherson and Jackie Chan Juniors nowadays. So I put in 
