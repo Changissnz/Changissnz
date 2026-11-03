@@ -11,7 +11,10 @@ some effort to write this alternative profile introduction.
 
 I never thought I would have come to detest science fiction as much as I do now 
 (maybe that will change), all because of the coverage and impacts of large language 
-models (codenamed "artificial intelligence" (A.I.), codenamed "super intelligence" (S.I.). 
+models (codenamed "artificial intelligence" (A.I.), codenamed "super intelligence" (S.I.)). 
+On the educational side, though, it seems that because of socio-economic phenomena tied to 
+LLMs, I have also come to fully grasp the conceptual definition of fraud in 
+scientific/engineering work, which translates to marketing once people propagate it. 
 
 I sadly have spent quite some time reading about what other people think about these 
 times, via LinkedIn. I am not using that site for a long time now. This 
