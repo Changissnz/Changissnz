@@ -9,6 +9,10 @@ more on that. I figured that introduction was too negative nancy for all these
 Tom Clancy's and Jessica McPhersons and Jackie Chan Juniors nowadays. So I put in 
 some effort to write this alternative profile introduction. 
 
+It's Election Day today in the U.S.A. Midterms! I'm still making my decisions on 
+who to vote for. Would that be my favorite Chinese-supporting Democrat or my 
+also favorite Russian-supporting Republican? 
+
 I never thought I would have come to detest science fiction as much as I do now 
 (maybe that will change), all because of the coverage and impacts of large language 
 models (codenamed "artificial intelligence" (A.I.), codenamed "super intelligence" (S.I.)). 
