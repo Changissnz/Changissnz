@@ -25,19 +25,18 @@ only have one LinkedIn account, by the way.
 I can't continue getting worked up about social, political, and economic issues on the 
 daily or even weekly. It's sort of looking like my psyche is building another steel barrier 
 against those kinds of things. It's become cliched and helpless: 
-```
-There are Nazis in politics (news flash, U.S.A. still heavily leans towards UK).  
 
-Minority politickers are either rich model minorities or leftists (I'm not surprised there about
-that claim).  
+> There are Nazis in politics (news flash, U.S.A. still heavily leans towards UK).  
 
-Sensationalism! Outrage!
+> Minority politickers are either rich model minorities or leftists (I'm not surprised there about
+> that claim).  
 
-AIPAC! Communism!
+> Sensationalism! Outrage!
 
-Artificial Intelligence is so advanced now it is Super Intelligence (S.I.)! No more jobs!
-No more money! 
-```
+> AIPAC! Communism!
+
+> Artificial Intelligence is so advanced now it is Super Intelligence (S.I.)! No more jobs!
+> No more money! 
 
 Overall, with working in technology and all, a sense of resignation has really continued 
 to form over my psyche. Obviously, I won't work in building more and more software 
