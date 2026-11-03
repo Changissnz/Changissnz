@@ -9,7 +9,7 @@ more on that. I figured that introduction was too negative nancy for all these
 Tom Clancy's and Jessica McPhersons and Jackie Chan Juniors nowadays. So I put in 
 some effort to write this alternative profile introduction. 
 
-It's Election Day today in the U.S.A. Midterms! I'm still making my decisions on 
+It's Election Day in the U.S.A. today. Midterms! I'm still making my decisions on 
 who to vote for. Would that be my favorite Chinese-supporting Democrat or my 
 also favorite Russian-supporting Republican? 
 
