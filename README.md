@@ -41,7 +41,7 @@ against those kinds of things. It's become cliched and helpless:
 > The Ethno-Demographic Politics: 
   >> - Chinese are stealing all our jobs (I thought that was American Laissez Faire policy)!
 
-  >> - Mexicans are dealing drugs (supply and demand)!
+  >> - Mexicans are dealing drugs (you learn about supply and demand)!
 
   >> - Arabs (and what about them)!
 
