@@ -36,7 +36,12 @@ against those kinds of things. It's become cliched and helpless:
 > AIPAC! Communism!
 
 > Artificial Intelligence is so advanced now it is Super Intelligence (S.I.)! No more jobs!
-> No more money! 
+> No more money!
+
+> Chinese are stealing all our jobs (I thought that was American Laissez Faire policy)!
+> Mexicans are dealing drugs (supply and demand)! Arabs (and what about them)! It's the
+> Russians, my God, it's the Russians all over again, and they're stealing all of our arms
+> trade (wow, I wonder if it's another inside job)! 
 
 Overall, with working in technology and all, a sense of resignation has really continued 
 to form over my psyche. Obviously, I won't work in building more and more software 
