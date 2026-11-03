@@ -1,5 +1,5 @@
 ## My sentiments have been just like most general matters. 
-### 11/3/206 
+### 11/3/2026 
 
 They have been dropping for almost two straight years now. 
 
