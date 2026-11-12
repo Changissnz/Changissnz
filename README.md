@@ -6,7 +6,7 @@ more disparity by now.
 
 I tend to not delve into socioeconomic and political matters since my formal education did not specialize me for those 
 topics. But a lot of people, Americans included, have no problem talking out of their asses. So I too could not help 
-but publish more than just a few pieces that at least touch on politics and socioeconomics. 
+but publish to Github more than just a few pieces that at least touch on politics and socioeconomics. 
 
 The software industry has become a dangerous industry now. The competition is as stiff as a multi-national criminal 
 conspiracy. 
