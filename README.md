@@ -1,4 +1,4 @@
-## There are strange happenings going on or brewing. 
+## There are strange happenings going on or brewing. (11/12/2026)
 
 I'll keep this description of myself short. I live in the United States, and I am not currently employed by anyone. 
 If my fate were left to the capital markets, I would have sadly ended up as a corporate shill or sold into even 
