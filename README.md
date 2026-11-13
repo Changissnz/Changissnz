@@ -15,3 +15,11 @@ conspiracy.
 
 See [this link](https://github.com/Changissnz/previous_github_profile_intro__11-03-2026) for my previous Github 
 introduction. 
+
+Right now, I have decided to take it easy with working in software, since the major software corporations have been 
+hiring mainly blacks and Indians, due to disadvantaged backgrounds. 
+
+It's cool, though. I definitely know how to live life, such as spending time with **my beautiful blonde girlfriend 
+every day**, all the minutes we will share now that I don't have to do software that much (A.I. can do software, hee hee!). 
+
+![image info](girlfriend_picture.png)
